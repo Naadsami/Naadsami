@@ -1,0 +1,5 @@
+-  Hi, I’m @Naadsami
+-  I’m interested in UX design & project management
+-  I’m looking to collaborate on - whencanwemeet
+-  reach out to me @naadsami@gmail.com⁷
+-  Pronouns: She/her.
